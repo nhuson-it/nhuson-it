@@ -2,7 +2,7 @@
 
 ### Future DevOps Engineer
 
-- 📫 How to reach me **sxnninja@gmail.com**
+- 📫 How to reach me **nhuson-it@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
